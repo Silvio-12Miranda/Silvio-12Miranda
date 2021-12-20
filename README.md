@@ -1,0 +1,1 @@
+Hi my name is Silvio Miranda, I am from Mexico, I study physics at the autonomous university of the state of Morelos, I am a lover of technology and interface design, previously I taught mathematics and physics at upper middle levels, I currently work as a data scientist and software development
